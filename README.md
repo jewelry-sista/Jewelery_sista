@@ -1,1 +1,1 @@
-# Jewelery_sista
+# Jewelry_sista
